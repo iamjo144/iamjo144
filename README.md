@@ -1,5 +1,5 @@
 # Hi there 👋
-### It's about me my projects and what not! Will add things on it later till then see you around!
+### It's about me, my projects and what not! Will add things on it later till then see you around!
 
 - 🔭 I’m currently working on building Computer Programming skills to solve real world problems
 - 🌱 I’m currently learning Software Engineering, Data Cloud and Programming
