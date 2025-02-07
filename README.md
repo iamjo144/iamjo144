@@ -7,5 +7,6 @@
 - 💬 Ask me about Business Finance, Marketing, Strategy and Biotechnology!
 - ⚡ Fun fact: "Rosetta Stone" helped scientists deciphr hieroglyphic Egyptian Language!
 
-Thank you!!
+Thank you!!!!!
+
   
